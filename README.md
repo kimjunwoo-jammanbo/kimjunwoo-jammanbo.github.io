@@ -1,1 +1,0 @@
-# kimjunwoo-jammanbo.github.io
